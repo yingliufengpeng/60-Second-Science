@@ -1,5 +1,5 @@
     Buck's first day at Dyea Beach(戴依海岸) was terrible. Every hour there was some new, frighting surprise. There was no peace, no rest--only continual noise and movement. And every miniute there was danger, because these dogs men. They knew only the law of club and tooth.
-    <br/>
+    
 
     Buck had never seen dogs fight like these dogs; they were like wolves. In a few minutes he learnt this from watching Curly. She tried to make friends with dog, a big one, although not big as she was. There was no warning. The dog jumped on Curly, his teeth closed together, then he jumped away, and Curly's face was torn from eye to mouth.
 
