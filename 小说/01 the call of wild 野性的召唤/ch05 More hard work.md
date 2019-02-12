@@ -172,13 +172,13 @@
     Thornton stood between Hal and Buck and did not move. Hal took out his knife, but Thornton
     knocked it out of his hand. Mercedes screamed again. Then Thornton picked up Hal's knife 
     and cut Buck out of the harness.
-
+ 
     Hal didn't want to fight, and Buck was not worth fighting for; he was nearly dead. Hal 
     started the sledge and went down towards the river. Buck lifed his and watched the sledge 
     move away. Pike was leading, adn Joe, Teek and Solleks were behind him. Hal was walking 
     in front of the sledge and Mercedes was riding on it; Charles was walking behind.
 
-    As Buck watched, Thornton felf his body with gentle hands, seraching for broken bones.
+    As Buck watched, Thornton felt his body with gentle hands, seraching for broken bones.
     Buck was very thin, very tired and very weak, but Thornton didn't think he was going to
     die. Then both dog and man watched the sledge as it went slowly out on to the ice in the 
     middle of the river. Suddenly the back of the sledge went down and the front went up into 
