@@ -99,7 +99,7 @@
     Spitz was a good figher. He was full of hate and anger, but he was also intelligent. Every time Buck tried to bite his throat, he met Spitz's 
     own teeth. Then, each time Buck attacked, Sptitz move and bit him on the side as he passed. After a few minutes, Buck was covered in blood.
 
-    He attacked againm, but this time turned at the last minute and went under Spitz, biting his left front leg. The bone broke, 
+    He attacked again, but this time turned at the last minute and went under Spitz, biting his left front leg. The bone broke, 
     and Spitz was standing on three legs. Buck tried to knock Spitz down, and then repeated his earlier and broke Spitz's right front
     leg.
 
