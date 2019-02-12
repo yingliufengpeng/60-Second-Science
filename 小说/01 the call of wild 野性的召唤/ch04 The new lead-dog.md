@@ -21,7 +21,7 @@
     Buck remembered the man in the red coat, and moved away. This time, when Solleks was 
     harnessed as lead-dog, Buck did not try to move in. He kept a few metres away and 
     circled around Francois carefully. But when Francois called him to his old place 
-    in front of Dave(站在Dave之前的老位置), Buck refused. He had won his fight wiht Spitz 
+    in front of Dave(站在Dave之前的老位置), Buck refused. He had won his fight with Spitz 
     and he wanted to be lead-dog.
 
     For an hour the two men tried to harness him. Buck did not run away, but he did not 
