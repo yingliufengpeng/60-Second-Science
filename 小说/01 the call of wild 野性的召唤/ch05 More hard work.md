@@ -182,7 +182,7 @@
     Buck was very thin, very tired and very weak, but Thornton didn't think he was going to
     die. Then both dog and man watched the sledge as it went slowly out on to the ice in the 
     middle of the river. Suddenly the back of the sledge went down and the front went up into 
-    air. Mercedes screamed, and Charles turned and took one step back. Then a big piece of 
+    air. Mercedes screamed, and Charles turned and took one step back(退了一步). Then a big piece of 
     ice broke off, and dogs, sledge and people disappeared; there was only a big hole in the 
     ice.
 
