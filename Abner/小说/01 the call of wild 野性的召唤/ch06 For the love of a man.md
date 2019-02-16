@@ -13,7 +13,7 @@
     been good friends, but Buck had not loved him. John Thornton had saved his 
     life, but he was also a man who was nuturally kind ot aninmals. He took very 
     good care of his dogs, not because it was sensible to do that(出于什么意识), 
-    but because he felt they were his children. He was  always talking to Buck, 
+    but because he felt they were his children. He was always talking to Buck, 
     holding his head and shaking it lovingly. In anwser, Buck liked to take Thornton's
     hand gently in his mouth.
 
